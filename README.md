@@ -1,0 +1,2 @@
+# aldy
+semangat pokonya
